@@ -1,3 +1,3 @@
 # practise
 first project
-me shreeteja N
+me shreeteja the future creater
